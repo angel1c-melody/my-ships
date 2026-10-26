@@ -8,7 +8,7 @@
   <table align="center">
     <tr>
       <td align="center">
-    shadowvanilla, shadowlily, shadowvanillalily, shadowsugar, shadowcest (shadowfount), purelily, eternallily, hollysugar (one-sided), mysticsugar, sugarlova, unicornarrow, seamoon, polybeasts (platonic and romantic), me x shadow milk cookie/hj
+    shadowvanilla, shadowlily, shadowvanillalily, shadowsugar, shadowcest (shadowfount), purelily, eternallily, mysticsugar, sugarlova, unicornarrow, seamoon, polybeasts (platonic and romantic), me x shadow milk cookie/hj
       </td>
     </tr>
   </table>
