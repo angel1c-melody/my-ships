@@ -8,7 +8,7 @@
   <table align="center">
     <tr>
       <td align="center">
-    shadowvanilla, shadowlily, shadowvanillalily, shadowsugar, shadowcest (shadowfount, headmasterfount, shadowsage, fountsage), purelily, eternallily, mysticsugar, sugarlova, sugarsapphire, unicornarrow, seamoon, polybeasts (platonic and romantic), me x shadow milk cookie/hj
+    shadowvanilla, shadowlily, shadowvanillalily, shadowsugar, shadowcest (shadowfount, headmasterfount, shadowsage, sagefount, shadowazure and basically every variant of shadowcest), purelily, eternallily, mysticsugar, sugarlova, sugarsapphire, unicornarrow, seamoon, polybeasts (platonic and romantic), me x shadow milk cookie/nsrs (NOT EXACTLY A YUMESHIPPER!! SHADOW MILK COOKIE YUMES PLEASE INTERACT ^^)
       </td>
     </tr>
   </table>
